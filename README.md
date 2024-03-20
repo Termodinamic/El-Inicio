@@ -1,5 +1,5 @@
 The start to be the best. 
-Im try to start to learn english, so im gonna take this data for learn and make a mistake.
+Im try to start to learn english, so im gonna take this data for learn and make mistakes.
 I don´t know if i write that right, but im just testing.
 I want to be the better computer scientist in my country and in the world.
 I know is gonna be tough, but i´ll sacrifice all the things what i have to reach my goal.
